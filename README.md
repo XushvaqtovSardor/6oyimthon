@@ -1,1 +1,1 @@
-https://6oyimthon-3pj7-2ovxyfjbh-sardors-projects-0bb5ea52.vercel.app/
+https://6oyimthon-4rfx.vercel.app/
